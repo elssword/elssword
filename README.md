@@ -1,4 +1,9 @@
+![48546605](https://user-images.githubusercontent.com/48546605/113478611-127ae480-94b4-11eb-9830-37637656259e.jpeg)
+
+
 ### Hi there, I'm dewa - aka [elssword]👋
+
+
 [youtube] 
 
 [![youtube](https://lh3.googleusercontent.com/-wOL9ZMCq8ik/AAAAAAAAAAI/AAAAAAAAAAA/AMZuucmj0Knzqqup682ZvGNvnGodAJFeEA/photo.jpg?sz=46)](https://youtube.com/channel/UCGE4mY4tJ0iyWJl-u2FEFkA)
