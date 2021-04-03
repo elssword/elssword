@@ -1,4 +1,5 @@
-![48546605](https://user-images.githubusercontent.com/48546605/113478611-127ae480-94b4-11eb-9830-37637656259e.jpeg)
+![IMG-20210327-WA0079](https://user-images.githubusercontent.com/48546605/113478649-5a9a0700-94b4-11eb-8885-2e4c98cc2b7c.jpg)
+
 
 
 ### Hi there, I'm dewa - aka [elssword]👋
