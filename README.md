@@ -7,7 +7,7 @@
 
 [youtube] 
 
-[![youtube](https://lh3.googleusercontent.com/-wOL9ZMCq8ik/AAAAAAAAAAI/AAAAAAAAAAA/AMZuucmj0Knzqqup682ZvGNvnGodAJFeEA/photo.jpg?sz=46)](https://youtube.com/channel/UCGE4mY4tJ0iyWJl-u2FEFkA)
+[![youtube](https://user-images.githubusercontent.com/48546605/113478804-60441c80-94b5-11eb-9cb3-c7dbc61657a7.jpg))](https://youtube.com/channel/UCGE4mY4tJ0iyWJl-u2FEFkA)
 
 ## I'm a Human,maybe🤣!!
 
